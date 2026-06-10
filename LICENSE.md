@@ -1,4 +1,4 @@
-# 
+# Instantâneo dex market making bot complementos para Mac OS | VIP dex market making bot complementos para PC Windows. Com API de exchange descentralizada e indexação de blockchain — otimizado para máximo desempenho em cada plataforma.
 
 
 
